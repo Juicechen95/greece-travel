@@ -1,3 +1,9 @@
+# Scenic spots
+## Athens
+[雅典景点]（http://www.mafengwo.cn/gonglve/ziyouxing/25900.html）
+[雅典公共交通]（http://www.mafengwo.cn/gonglve/ziyouxing/145786.html）
+## other
+
 # wifi
 
 # Help
