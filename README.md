@@ -1,10 +1,29 @@
 # Scenic spots
 ## Athens
-[雅典景点]（http://www.mafengwo.cn/gonglve/ziyouxing/25900.html）
-[雅典公共交通]（http://www.mafengwo.cn/gonglve/ziyouxing/145786.html）
-## other
+[雅典景点1](http://www.mafengwo.cn/gonglve/ziyouxing/25900.html)
+
+[雅典景点2](http://www.mafengwo.cn/gonglve/ziyouxing/150151.html)
+
+[雅典公共交通](http://www.mafengwo.cn/gonglve/ziyouxing/145786.html)
+
+## other spots
+
+[「天空之城」迈泰奥拉（Meteora）](http://www.mafengwo.cn/gonglve/ziyouxing/154162.html)
+
+[islands](http://www.mafengwo.cn/gonglve/ziyouxing/96542.html)
+
+# Food
+
+[1](http://www.mafengwo.cn/gonglve/ziyouxing/146383.html)
+
+[2](http://www.mafengwo.cn/gonglve/ziyouxing/150688.html)
 
 # wifi
+
+# 行李
+
+移动充, visa card, U 型枕
+
 
 # Help
 ## 使领馆
