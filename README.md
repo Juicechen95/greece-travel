@@ -22,7 +22,9 @@
 
 # 行李
 
-移动充, visa card, U 型枕
+移动充, visa card, U 型枕,
+
+记得要更新armor，不要让容器断了。。。
 
 
 # Help
