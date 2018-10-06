@@ -6,6 +6,16 @@
 
 [雅典公共交通](http://www.mafengwo.cn/gonglve/ziyouxing/145786.html)
 
+[hills top5](https://travelgreecetraveleurope.com/2016/02/02/walk-to-the-best-view-of-athens/)
+
+## 1. Acropolis
+Mars Hill/Aeropagus. Great views on this rock 
+
+Acropolis Museum ,  skip-the-line Acropolis tour(Parthenon), 
+
+## 2. Filopappos Hill
+located just southwest of the Acropolis,
+
 ## other spots
 
 [「天空之城」迈泰奥拉（Meteora）](http://www.mafengwo.cn/gonglve/ziyouxing/154162.html)
