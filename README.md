@@ -16,6 +16,10 @@ Bus to Athens city centre, metro line 3(blue), taxi
 
 [hills top5](https://travelgreecetraveleurope.com/2016/02/02/walk-to-the-best-view-of-athens/)
 
+[booking 出海一日游](https://secure.booking.com/attraction/gr/athens/3044.zh-cn.html?product_id=3044;url_code=ht8Lf4kmlETSh6LBcoo7CgXq2FEmzDkDNuq4lr5kg0R9xRt8OhElzElsFNzGshUyvV51YbbDwv6YBGdPgEiqBtx3g2tGKOihHXEU&&source=attractions_searchresults-results)
+
+[敞篷巴士](https://secure.booking.com/attraction/gr/athens/6481.zh-cn.html?product_id=6481;url_code=ht8Lf4kmlETSh6LBcoo7CgXq2FEmzDkDNuq4lr5kg0R9xRt8OhElzElsFNzGshUyvV51YbbDwv6YBGdPgEiqBtx3g2tGKOihHXEU&&source=attractions_searchresults-results)
+
 ## 1. Acropolis雅典卫城
 Mars Hill/Aeropagus. Great views on this rock 
 
