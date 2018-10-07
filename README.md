@@ -1,3 +1,11 @@
+# meeting hall
+
+[MAICC](https://2018.ieeeicip.org/GettingThere.asp)
+
+from airport:
+
+Bus to Athens city centre, metro line 3(blue), taxi
+
 # Scenic spots
 ## Athens
 [雅典景点1](http://www.mafengwo.cn/gonglve/ziyouxing/25900.html)
@@ -8,7 +16,7 @@
 
 [hills top5](https://travelgreecetraveleurope.com/2016/02/02/walk-to-the-best-view-of-athens/)
 
-## 1. Acropolis
+## 1. Acropolis雅典卫城
 Mars Hill/Aeropagus. Great views on this rock 
 
 Acropolis Museum ,  skip-the-line Acropolis tour(Parthenon), 
